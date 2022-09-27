@@ -1,4 +1,4 @@
-### Hi there 🫠
+### Hi there 
 #  [Prashant](https://github.com/Prashant918) this,
 
 <!--
