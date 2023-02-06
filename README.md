@@ -12,10 +12,10 @@ Before that, I loved living like a mango man.
 
 	Here are some ideas you will get about 1 & only 1 it's me :
 
-- 👻 I go by the name Prashant Maurya, 
-   - 😈 I’m nothing but BUG BOUTY HUNTER ...
+- 👻 I go by the name Mr. Maurya, 
+   - 😈 I’m nothing but the BUG BOUTY HUNTER ...
       - 📚 I’m currently studing B..B.T..BULLSHIT ...
       	 - ...
-- 💝 I Hate Nothing about You.
+- 💝 I Don't have anything to #4TE.
 
-						I'm looking forward to collaborate with you.
+						I'm looking forward to collaborate with any bada$$.
